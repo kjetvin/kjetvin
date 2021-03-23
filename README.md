@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kjetvin
+- 👀 I’m interested in things
+- 🌱 I’m currently learning other things
+- 💞️ I’m looking to collaborate on specific things
+- 📫 How to reach me via slack
